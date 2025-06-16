@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐ Feel free to call me Niran!<br>🧑‍💻 I'm 19 years old, passionate about technology and cats. If you want to get to know me, just buy me a coffee ☕. But if you're here to meet a programmer, take a look at my code!
+⭐ Feel free to call me Niran!<br>🧑‍💻 I'm 20 years old, passionate about technology and cats. If you want to get to know me, just buy me a coffee ☕. But if you're here to meet a programmer, take a look at my code!
 
 
 ## 🌐 Socials:
