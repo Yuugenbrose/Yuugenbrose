@@ -1,4 +1,4 @@
-## 👋 Hey, I'm Davi (Niran)
+## 👋 Hey, I'm Davi Barreto
 
 COO at **[Growth Hub](https://growthhub.com.br)** — a Brazilian growth marketing agency. I build the products and internal tools that power our operations and our clients' growth.
 
