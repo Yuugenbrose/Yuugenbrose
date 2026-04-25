@@ -19,6 +19,4 @@ operations and our clients' growth.
 
 ### 📫 Reach me
 
-- 🌐 [growthhub.com.br](https://growthhub.com.br)
-- 💼 [LinkedIn](https://linkedin.com/in/seu-handle)
-- 📧 davicoo@growthhub.com.br
+- 📧 davibarreto.contato@gmail.com
